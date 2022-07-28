@@ -1,2 +1,2 @@
 # DELL
-welcom to hgs
+we provide Best and Powerfull computers and laptops
